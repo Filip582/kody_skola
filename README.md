@@ -1,6 +1,6 @@
 # kody_skola
 ## VITA32
 
-OH neee vita j
+hojhojhoj
 
-e muj kluk 
+hojhojhoj
